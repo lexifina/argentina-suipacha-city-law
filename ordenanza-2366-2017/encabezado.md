@@ -1,0 +1,5 @@
+Ordenanza Nº2366/2017
+Ordenanza Nº 2366/2017
+Suipacha, 10/08/2017
+ORDENANZA
+ORDENANZA N° 2366
