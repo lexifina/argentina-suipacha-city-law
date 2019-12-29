@@ -1,0 +1,5 @@
+Ordenanza Nº2496/2019
+Ordenanza Nº 2496/2019
+Suipacha, 16/10/2019
+ORDENANZA
+ORDENANZA Nº 2496/2019
