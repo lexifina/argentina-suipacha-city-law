@@ -1,0 +1,5 @@
+Ordenanza Nº2509/2019
+Ordenanza Nº 2509/2019
+Suipacha, 25/11/2019
+ORDENANZA
+ORDENANZA Nº 2509/2019
