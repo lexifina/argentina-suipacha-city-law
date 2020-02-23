@@ -1,0 +1,5 @@
+Ordenanza Nº2512/2019
+Ordenanza Nº 2512/2019
+Suipacha, 09/12/2019
+ORDENANZA
+ORDENANZA Nº 2512/2019
