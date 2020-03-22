@@ -1,0 +1,5 @@
+Ordenanza Nº2516/2019
+Ordenanza Nº 2516/2019
+Suipacha, 23/12/2019
+ORDENANZA
+ORDENANZA Nº 2516/2019
