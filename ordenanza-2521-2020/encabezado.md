@@ -1,0 +1,5 @@
+Ordenanza Nº2521/2020
+Ordenanza Nº 2521/2020
+Suipacha, 11/05/2020
+ORDENANZA Nº 2521/2020
+ORDENANZA
