@@ -1,0 +1,5 @@
+Ordenanza Nº2526/2020
+Ordenanza Nº 2526/2020
+Suipacha, 11/05/2020
+ORDENANZA Nº 2526/2020
+ORDENANZA
