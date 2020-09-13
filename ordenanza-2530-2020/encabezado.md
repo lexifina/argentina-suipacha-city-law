@@ -1,0 +1,5 @@
+Ordenanza Nº2530/2020
+Ordenanza Nº 2530/2020
+Suipacha, 24/06/2020
+ORDENANZA Nº 2530/2020
+ORDENANZA
