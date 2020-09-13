@@ -1,0 +1,5 @@
+Ordenanza Nº2527/2020
+Ordenanza Nº 2527/2020
+Suipacha, 08/06/2020
+ORDENANZA Nº 2527/2020
+ORDENANZA
