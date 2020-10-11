@@ -1,0 +1,5 @@
+Ordenanza Nº2532/2020
+Ordenanza Nº 2532/2020
+Suipacha, 10/08/1900
+ORDENANZA Nº 2532/2020
+ORDENANZA
