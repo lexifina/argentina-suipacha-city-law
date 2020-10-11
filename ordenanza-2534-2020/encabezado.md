@@ -1,0 +1,5 @@
+Ordenanza Nº2534/2020
+Ordenanza Nº 2534/2020
+Suipacha, 10/08/2020
+ORDENANZA Nº 2534/2020
+ORDENANZA
