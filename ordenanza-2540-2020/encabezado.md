@@ -1,0 +1,5 @@
+Ordenanza Nº2540/2020
+Ordenanza Nº 2540/2020
+Suipacha, 17/09/2020
+ORDENANZA Nº 2540/2020
+ORDENANZA
