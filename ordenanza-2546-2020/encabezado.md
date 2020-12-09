@@ -1,0 +1,5 @@
+Ordenanza Nº2546/2020
+Ordenanza Nº 2546/2020
+Suipacha, 14/10/2020
+ORDENANZA Nº 2546/2020
+ORDENANZA
