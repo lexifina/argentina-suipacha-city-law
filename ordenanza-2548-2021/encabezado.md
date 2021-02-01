@@ -1,0 +1,5 @@
+Ordenanza Nº2548/2020
+Ordenanza Nº 2548/2020
+Suipacha, 25/11/2020
+ORDENANZA Nº 2548/2020
+ORDENANZA
