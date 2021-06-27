@@ -1,0 +1,5 @@
+Ordenanza Nº2560/2021
+Ordenanza Nº 2560/2021
+Suipacha, 08/03/2021
+ORDENANZA Nº 2560/2021
+ORDENANZA
