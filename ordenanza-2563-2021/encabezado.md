@@ -1,0 +1,5 @@
+Ordenanza Nº2563/2021
+Ordenanza Nº 2563/2021
+Suipacha, 12/04/2021
+ORDENANZA Nº 2563/2021
+ORDENANZA
