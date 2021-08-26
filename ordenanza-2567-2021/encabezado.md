@@ -1,0 +1,5 @@
+Ordenanza Nº2567/2021
+Ordenanza Nº 2567/2021
+Suipacha, 10/05/2021
+ORDENANZA Nº 2567/2021
+ORDENANZA
