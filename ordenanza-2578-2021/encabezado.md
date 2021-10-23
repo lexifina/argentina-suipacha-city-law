@@ -1,0 +1,5 @@
+Ordenanza Nº2578/2021
+Ordenanza Nº 2578/2021
+Suipacha, 12/07/2021
+ORDENANZA Nº 2578/2021
+ORDENANZA
