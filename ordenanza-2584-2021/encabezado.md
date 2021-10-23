@@ -1,0 +1,5 @@
+Ordenanza Nº2584/2021
+Ordenanza Nº 2584/2021
+Suipacha, 26/07/2021
+ORDENANZA Nº 2584/2021
+ORDENANZA
