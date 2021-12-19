@@ -1,0 +1,5 @@
+Ordenanza Nº2595/2021
+Ordenanza Nº 2595/2021
+Suipacha, 27/09/2021
+ORDENANZA Nº 2595/2021
+ORDENANZA
