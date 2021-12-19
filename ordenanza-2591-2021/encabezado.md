@@ -1,0 +1,5 @@
+Ordenanza Nº2591/2021
+Ordenanza Nº 2591/2021
+Suipacha, 13/09/2021
+ORDENANZA Nº 2591/2021
+ORDENANZA
