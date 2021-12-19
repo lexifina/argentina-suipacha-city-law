@@ -1,0 +1,5 @@
+Ordenanza Nº2599/2021
+Ordenanza Nº 2599/2021
+Suipacha, 13/10/2021
+ORDENANZA Nº 2599/2021
+ORDENANZA
