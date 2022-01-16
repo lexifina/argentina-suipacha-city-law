@@ -1,0 +1,5 @@
+Ordenanza Nº2602/2021
+Ordenanza Nº 2602/2021
+Suipacha, 25/10/2021
+ORDENANZA Nº 2602/2021
+ORDENANZA
