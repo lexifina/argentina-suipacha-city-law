@@ -1,0 +1,5 @@
+Ordenanza Nº2607/2021
+Ordenanza Nº 2607/2021
+Suipacha, 24/11/2021
+ORDENANZA Nº 2607/2021
+ORDENANZA
