@@ -1,0 +1,5 @@
+Ordenanza Nº2614/2021
+Ordenanza Nº 2614/2021
+Suipacha, 27/12/2021
+ORDENANZA Nº 2614/2021
+ORDENANZA
