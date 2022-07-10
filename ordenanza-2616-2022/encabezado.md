@@ -1,0 +1,5 @@
+Ordenanza Nº2616/2022
+Ordenanza Nº 2616/2022
+Suipacha, 14/03/2022
+ORDENANZA Nº 2616/2022
+ORDENANZA
