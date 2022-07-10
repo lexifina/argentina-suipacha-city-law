@@ -1,0 +1,5 @@
+Ordenanza Nº2620/2022
+Ordenanza Nº 2620/2022
+Suipacha, 11/04/2022
+ORDENANZA Nº 2620/2022
+ORDENANZA
