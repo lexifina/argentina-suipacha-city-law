@@ -1,0 +1,5 @@
+Ordenanza Nº2618/2022
+Ordenanza Nº 2618/2022
+Suipacha, 28/03/2022
+ORDENANZA Nº 2618/2022
+ORDENANZA
