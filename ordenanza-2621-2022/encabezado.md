@@ -1,0 +1,5 @@
+Ordenanza Nº2621/2022
+Ordenanza Nº 2621/2022
+Suipacha, 25/04/2021
+ORDENANZA Nº 2621/2022
+ORDENANZA
