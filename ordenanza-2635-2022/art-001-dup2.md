@@ -1,0 +1,1 @@
+Artículo Nº 1: Otórguese una subvención mensual a la Asociación Hogar de Ancianos Hermana Trinidad Vicandi de Suipacha para gastos de funcionamiento y/o mantenimiento, equivalente al valor de una cápita y media (1,5) que será informado por la Asociación.
