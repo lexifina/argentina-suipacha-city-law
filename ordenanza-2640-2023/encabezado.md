@@ -1,0 +1,5 @@
+Ordenanza Nº2640/2022
+Ordenanza Nº 2640/2022
+Suipacha, 12/10/2022
+ORDENANZA Nº 2640/2022
+ORDENANZA
