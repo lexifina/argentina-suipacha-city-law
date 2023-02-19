@@ -1,0 +1,5 @@
+Ordenanza Nº2644/2022
+Ordenanza Nº 2644/2022
+Suipacha, 14/11/2022
+ORDENANZA Nº 2644/2022
+ORDENANZA
