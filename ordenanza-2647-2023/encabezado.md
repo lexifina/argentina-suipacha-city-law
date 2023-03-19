@@ -1,0 +1,5 @@
+Ordenanza Nº2647/2022
+Ordenanza Nº 2647/2022
+Suipacha, 12/12/2022
+ORDENANZA Nº 2647/2022
+ORDENANZA
