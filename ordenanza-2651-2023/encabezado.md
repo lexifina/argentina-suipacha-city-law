@@ -1,0 +1,5 @@
+Ordenanza Nº2651/2022
+Ordenanza Nº 2651/2022
+Suipacha, 21/12/2022
+ORDENANZA Nº 2651/2022
+ORDENANZA
