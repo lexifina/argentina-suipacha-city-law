@@ -1,0 +1,5 @@
+Ordenanza Nº2673/2023
+Ordenanza Nº 2673/2023
+Suipacha, 12/06/2023
+ORDENANZA Nº 2673/2023
+ORDENANZA
