@@ -1,0 +1,5 @@
+Ordenanza Nº2684/2023
+Ordenanza Nº 2684/2023
+Suipacha, 25/09/2023
+ORDENANZA Nº 2684/2023
+ORDENANZA
