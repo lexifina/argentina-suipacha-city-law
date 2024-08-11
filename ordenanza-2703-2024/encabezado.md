@@ -1,0 +1,5 @@
+Ordenanza Nº2703/2024
+Ordenanza Nº 2703/2024
+Suipacha, 13/05/2024
+ORDENANZA
+ORDENANZA Nº 2703/2024
