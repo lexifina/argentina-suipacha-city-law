@@ -1,0 +1,1 @@
+Artículo 1º: Reconócese la deuda con el proveedor Bauer Humberto Manuel, CUIT 20-11923382-9, por la suma de $15.328.997,45, correspondiente a la reparación de la motoniveladora Dresser A 835, año 1996,inventario municipal Nº1863.
