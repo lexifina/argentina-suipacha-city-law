@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-suipacha",
+  "code": "AR-B-SUIPACHA",
+  "name": "Suipacha",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-suipacha-city-law",
+  "build": "built: municipal ordinances (199 ordinances, 199 versions) from https://sibom.slyt.gba.gob.ar/cities/120",
+  "language": "es",
+  "sources": 1
+}
